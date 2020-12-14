@@ -27,6 +27,6 @@
    > quote starts with >
    > Yazan A. Sneneh
    
-   ![image](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.talkwalker.com%2Fimages%2F2020%2Fblog-headers%2Fimage-analysis.png&imgrefurl=https%3A%2F%2Fwww.talkwalker.com%2Fblog%2Fwhat-is-image-analysis&tbnid=3z9LIUs4ChzUOM&vet=12ahUKEwifiv7YvsztAhWKEGMBHa_nAF4QMygEegUIARDcAQ..i&docid=hrsXnpNgc3ZwMM&w=1024&h=582&q=image&ved=2ahUKEwifiv7YvsztAhWKEGMBHa_nAF4QMygEegUIARDcAQ)
+   ![image](https://global.unitednations.entermediadb.net/assets/mediadb/services/module/asset/downloads/preset/Libraries/Production+Library/04-06-2020_Unsplash_Iran.jpg/image1170x530cropped.jpg)
    
    
